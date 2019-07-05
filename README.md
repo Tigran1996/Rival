@@ -1,2 +1,0 @@
-# Rival
-Rival
